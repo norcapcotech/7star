@@ -1,5 +1,3 @@
-# 7 STAR PROPERTY SERVICES LLC
-
 ![](7StarPropertyLogo.png)
 
 ## ADDRESS
