@@ -9,3 +9,5 @@ We provide high quality property management and maintenance services in the Midw
 Kansas City, Missouri 64114
 
 Email: connect@7starproperty.com
+
+Phone : 314-266-9015
