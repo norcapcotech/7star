@@ -1,6 +1,6 @@
 <img src="7StarPropertyLogo.png" height="300" width="300"/>
 
-We deliver hight quality property management and maintaince services while training each other and our clients on how to leverage the best tools for the right purpose.
+We deliver high quality property management and maintenance services while training each other and our clients on how to leverage the best tools for the right purpose.
 
 ### Address
 8301 State Line Rd. Suite 220 #851
