@@ -8,6 +8,6 @@ We provide high quality property management and maintenance services in the Midw
 8301 State Line Rd. Suite 220 #851
 Kansas City, Missouri 64114
 
-Email: connect@7starproperty.com
+Email: connect@7starintegrated.com
 
 Phone : 314-266-9015
