@@ -2,7 +2,8 @@
     <img src="7StarPropertyLogo.png" height="300" width="300"/>
 </p> 
 
-We provide high quality property management and maintenance services in the Midwest area while training each other and our clients on how to leverage the best tools for the right purpose.
+Stay tuned for our upcoming business venture  https://www.ayurveda99.com - Connecting Health to Nature
+
 
 ### Address
 8301 State Line Rd. Suite 220 #851
