@@ -5,9 +5,8 @@
 Stay tuned for our upcoming business venture  https://www.ayurveda99.com - Connecting Health to Nature
 
 
-### Address
-8301 State Line Rd. Suite 220 #851
-Kansas City, Missouri 64114
+
+Contact
 
 Email: connect@7starintegrated.com
 
